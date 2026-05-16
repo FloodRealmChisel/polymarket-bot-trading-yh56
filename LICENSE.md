@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with rare Polymarket Trading Bot | scalping-strategies + sentiment-analysis, the #1 trading-bot. Includes scalping-strategies and
 
 
 
